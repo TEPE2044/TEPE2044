@@ -1,4 +1,4 @@
-- 你好！我是Rekindlers的梦璃東MeLoDyZ，欢迎光临！
+- 你好！我是Rekindlers续燃者的创作者 MeLoDyZ
 
 
 <!---
