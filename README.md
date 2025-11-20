@@ -1,4 +1,4 @@
-- 你好！我是Rekindlers焠星者的创作者 MeLoDyZ
+- 你好！我是Rekindlers焠星者的创作者 JackyView
 
 
 <!---
